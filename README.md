@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @azharalisayed
-- 👀 I’m interested in Developing
+- 👀 I’m interested in Programming
 - 📫 How to reach me https://www.linkedin.com/in/azharalisayed
 - ⚡ Fun fact: Funny
 
