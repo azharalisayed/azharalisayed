@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @azharalisayed
 - 👀 I’m interested in Developing
-- 🌱 I’m currently learning Programming
 - 📫 How to reach me https://www.linkedin.com/in/azharalisayed
 - ⚡ Fun fact: Funny
 
